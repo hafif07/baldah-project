@@ -82,7 +82,7 @@ Pusat peradaban, pembenahan iman, penyempurnaan akhlaq
     * [Ideologi pendidikan kita](https://rumahbelajaribnuabbas.wordpress.com/2008/03/22/ideologi-pendidikan-kita/)
 
 ## **BMT**
-Instrumen penting dalam memudahkan pelaksanaan ibadah berkenaan dengan harta, serta jalan  hijrah ke pembiayaan syar'i dan untuk memerangi praktik kedzhaliman, riba dan gharar yang diharamkan
+Instrumen penting dalam memudahkan pelaksanaan ibadah berkenaan dengan harta, serta jalan  hijrah ke pembiayaan syar'i dan untuk memerangi praktik kedzhaliman,riba dan gharar yang diharamkan
 
 * ### Kepengurusan
     <!-- * Milik umat muslim setempat -->
